@@ -1,1 +1,1 @@
-# Blondimasalon-Nettisivu
+# Blondimasalon
